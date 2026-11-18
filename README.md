@@ -1,1 +1,0 @@
-# banco_senac_atualizado
